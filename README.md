@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @shiraliali
 - 👀 A developer who created Android River and Awizhe and a bunch of other app & services
-- 💞️ I’m looking to collaborate on https://awizhe.com
+- 💞️ I’m looking to collaborate on AIT corpration (https://awizhe.com)
 - 📫 You can reach me at https://twitter.com/alyshirali
